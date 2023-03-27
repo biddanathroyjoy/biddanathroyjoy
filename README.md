@@ -1,10 +1,9 @@
-- 👋 Hi, I’m @biddanathroyjoy
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Hay, 
+Have a good day. I’m Biddanath Roy Joy, a #lead_generation expert. 
 
-<!---
-biddanathroyjoy/biddanathroyjoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Dear, I can help you collect #B2B, #B2C and #LinkedIn_leads. For your information, I have a #LinkedIn_Sales_Navigator. Through which I can collect 100% correct leads.
+
+I will collect any kind of industry details, contact information and location.
+
+If you need lead generated for your business, please contact me.
+Thank you.
